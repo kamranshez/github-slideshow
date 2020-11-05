@@ -7,3 +7,5 @@ Use the left arrow to go back!
 this is need to more awasom
 ok mangaer i made it more awewn
 this is slide5 be careful
+
+let me clear again you
